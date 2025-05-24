@@ -16,4 +16,4 @@
   - **Facebook**:
   - **Telegram**: [@DanielFathollahi](https://t.me/DanielFathollahi7)
 
-- 😄 **Fun fact**: I spend so much time coding and swimming that sometimes I wonder if my laptop is waterproof! 😂
+- 😄 **Fun fact**: I spend so much time coding and swimming that sometimes I wonder if my laptop is waterproof!  😂
