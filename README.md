@@ -14,6 +14,6 @@
   - **Email**: [daniel.fathollahi.4@gmail.com](mailto:daniel.fathollahi.4@gmail.com)  
   - **Instagram**: [@daniel.fathollahi](https://www.instagram.com/daniel.fathollahi?utm_source=qr)
   - **Facebook**:
-  - **Telegram**: [@DanielFathollahi](https://t.me/DanielFathollahi)
+  - **Telegram**: [@DanielFathollahi](https://t.me/DanielFathollahi7)
 
 - 😄 **Fun fact**: I spend so much time coding and swimming that sometimes I wonder if my laptop is waterproof! 😂
